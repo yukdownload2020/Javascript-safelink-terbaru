@@ -1,0 +1,1 @@
+# Javascript-safelink-terbaru
